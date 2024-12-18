@@ -1,5 +1,5 @@
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/df936528-4f4c-4c32-aea4-cd3ab93050dc)
+<img src="https://assets.entrepreneur.com/content/3x2/2000/20180703190744-rollsafe-meme.jpeg?format=pjeg&auto=webp&crop=16:9">
 
 </div>
